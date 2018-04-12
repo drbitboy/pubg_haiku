@@ -24,7 +24,7 @@ heh
     
     
     
-    Wrecking the noobie
+    Wrecking the newbie
     All over Erangel map
     Now I'm wrecked, PubG
 
@@ -41,4 +41,4 @@ finally and last//is shooting other players//but it's the most fun.
 
 # Rhyme-ish haiku
 
-Wrecking the noobie // All over Erangle map // Now *I'm* wrecked, PubG
+Wrecking the newbie // All over Erangle map // Now *I'm* wrecked, PubG
